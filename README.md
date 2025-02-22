@@ -16,6 +16,23 @@ Don't forget to LIKE, SUBSCRIBE, and hit the notification bell for more mind-exp
 
 ---
 
+- [4th Gen Nuclear Reactors: The Future of Energy?](#4th-gen-nuclear-reactors-the-future-of-energy)
+  - [Generation IV Nuclear Reactors: A Comprehensive Guide](#generation-iv-nuclear-reactors-a-comprehensive-guide)
+  - [Generation IV Nuclear Reactors: Challenges and Opportunities](#generation-iv-nuclear-reactors-challenges-and-opportunities)
+  - [Generation IV Reactors: Design, Safety, and Societal Impact](#generation-iv-reactors-design-safety-and-societal-impact)
+  - [Generation IV Reactors: Design, Safety, and Geopolitics](#generation-iv-reactors-design-safety-and-geopolitics)
+  - [Advanced Reactors: Regulation, Safety, and Ethical Waste Management](#advanced-reactors-regulation-safety-and-ethical-waste-management)
+  - [Public Engagement with Generation IV Nuclear Technology](#public-engagement-with-generation-iv-nuclear-technology)
+  - [Generation IV Reactors: Winners and Losers](#generation-iv-reactors-winners-and-losers)
+  - [Preparing for Fourth-Generation Nuclear Reactors](#preparing-for-fourth-generation-nuclear-reactors)
+  - [Generation IV Nuclear Reactors: Best and Worst Case Scenarios](#generation-iv-nuclear-reactors-best-and-worst-case-scenarios)
+  - [Generation IV Nuclear Reactors: Risks and Rewards](#generation-iv-nuclear-reactors-risks-and-rewards)
+  - [Generation IV Nuclear Reactor Development: A Global Collaboration](#generation-iv-nuclear-reactor-development-a-global-collaboration)
+  - [Generation IV Nuclear Power: A Technological Leap](#generation-iv-nuclear-power-a-technological-leap)
+
+
+---
+
 ## Generation IV Nuclear Reactors: A Comprehensive Guide
 
 Generation IV Nuclear Reactors: A Comprehensive Study Guide
